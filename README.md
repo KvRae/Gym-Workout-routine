@@ -1,4 +1,4 @@
-# 3-Days-Workout-routine for 6 to 8 weeks
+# 3 Days Workout Routine for 6 to 8 weeks
 
 ## Day 1: Upper Body
 
