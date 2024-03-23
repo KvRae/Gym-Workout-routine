@@ -34,7 +34,7 @@
 - Squat: 3 sets of 8-10 reps
 
 <p align="center">
-    <img src="(https://github.com/KvRae/3-Days-Workout-routine/assets/58667227/1022e9c0-664f-4271-b605-e8748bbf84a4" alt="Bicep Curl" width="300" height="300">
+    <img src="https://github.com/KvRae/3-Days-Workout-routine/assets/58667227/1022e9c0-664f-4271-b605-e8748bbf84a4" alt="Bicep Curl" width="300" height="300">
 </p>
 
 - Leg Press: 3 sets of 8-10 reps
