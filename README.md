@@ -1,4 +1,4 @@
-# Modified 3-Day Pull-Push-Legs Workout Plan for Bigger Arms
+# 3-Day Pull-Push-Legs Workout Plan
 
 ## Day 1: Pull (Back & Biceps)
 - **Deadlifts**: 4 sets of 6-8 reps
